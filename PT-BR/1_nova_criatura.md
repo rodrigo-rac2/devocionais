@@ -1,6 +1,6 @@
+```
 "Assim que, se alguém está em Cristo, nova criatura é, as coisas velhas já passaram, eis que tudo se fez novo"
 2 Coríntios 5:17
-```
 
 Antes de sua conversão, o apóstolo Paulo era soberbo, egoísta, intolerante, agressivo. Ele prendeu muitos cristãos para matá-los. Quem imaginaria que ele se tornaria um homem bom, que ajudou e ainda ajuda milhões de pessoas a serem salvas? Ninguém! Mas isso tudo aconteceu quando Cristo entrou em sua vida, e então ele se tornou um novo homem.
 
