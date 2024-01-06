@@ -21,29 +21,21 @@ Sem pai, sem mãe, sem genealogia, não tendo princípio de dias nem fim de vida
 
 ### Quem era Melquisedeque?
 Melquisedeque era um rei de uma cidade chamada Salém, que provavelmente foi a Jerusalém primitiva, e sacerdote do Deus Altíssimo, no hebraico El Elyon (Gn 14:18; Hb 7:1). 
-O nome Melquisedeque significa “rei de justiça”, do hebraico malki-tsedeq, enquanto que o nome de sua cidade, Salém, significa “paz”, “segurança” ou “pacífico”. 
-Muitos estudiosos consideram que Jerusalém é Salém.
+
+O nome Melquisedeque significa “rei de justiça”, do hebraico malki-tsedeq, enquanto que o nome de sua cidade, Salém, significa “paz”, “segurança” ou “pacífico”. Muitos estudiosos consideram que Jerusalém é Salém.
+
 Logo, Melquisedeque também é “rei de paz” (Hb 7:2).
 
-Por conta de seu aparecimento repentino e seu desaparecimento misterioso, muitas especulações se formaram sobre quem foi Melquisedeque (cf. Hb 7:3). 
-Alguns estudiosos consideram que Melquisedeque teria sido Enoque (Calmet), um anjo (Orígenes), Sem (Targuns, Jerônimo, Lutero), o Espírito Santo (Epifânio) ou até 
-mesmo uma aparição de Cristo pré-encarnado (Ambrósio).
+Por conta de seu aparecimento repentino e seu desaparecimento misterioso, muitas especulações se formaram sobre quem foi Melquisedeque (cf. Hb 7:3). Alguns estudiosos consideram que Melquisedeque teria sido Enoque (Calmet), um anjo (Orígenes), Sem (Targuns, Jerônimo, Lutero), o Espírito Santo (Epifânio) ou até mesmo uma aparição de Cristo pré-encarnado (Ambrósio).
 
-Na verdade, todas essas sugestões não passam de especulações. Particularmente, acredito que o que podemos dizer com certeza é que Melquisedeque foi um gentio 
-(não descendente de Abraão), descendente de Noé, conhecedor e praticante do culto ao verdadeiro Deus, mesmo em meio a todo paganismo da época de Abraão, onde 
-praticamente todas as religiões eram politeístas. Melquisedeque era um líder civil e religioso, isto é, rei e sacerdote.
+Na verdade, todas essas sugestões não passam de especulações. Particularmente, acredito que o que podemos dizer com certeza é que Melquisedeque foi um gentio (não descendente de Abraão), descendente de Noé, conhecedor e praticante do culto ao verdadeiro Deus, mesmo em meio a todo paganismo da época de Abraão, onde praticamente todas as religiões eram politeístas. Melquisedeque era um líder civil e religioso, isto é, rei e sacerdote.
 
+### Sacerdócio
 A Bíblia claramente afirma que Melquisedeque era um sacerdote do Deus Altíssimo, porém alguns estudiosos propõem algumas objeções sobre essa afirmação.
 
-Apoiados em algumas evidências arqueológicas de que as cidades cananéias já possuíam sumo sacerdotes naquela época e, em alguns casos, estes eram os próprios reis, 
-alguns entendem que Melquisedeque, na verdade, adorava a Baal, o qual era chamado de “deus supremo” no panteão cananeu. Outros acreditam que Melquisedeque não tinha 
-uma concepção do Deus único e, sim, de um Deus dos deuses, ou seja, ainda que ele reconhecesse Deus como Altíssimo e criador dos céus e da terra, ainda não era uma 
-ideia puramente monoteísta, talvez algo parecido com o que ocorreu com o rei Nabucodonosor (cf. Dn 4:34-37).
+Apoiados em algumas evidências arqueológicas de que as cidades cananéias já possuíam sumo sacerdotes naquela época e, em alguns casos, estes eram os próprios reis, alguns entendem que Melquisedeque, na verdade, adorava a Baal, o qual era chamado de “deus supremo” no panteão cananeu. Outros acreditam que Melquisedeque não tinha uma concepção do Deus único e, sim, de um Deus dos deuses, ou seja, ainda que ele reconhecesse Deus como Altíssimo e criador dos céus e da terra, ainda não era uma ideia puramente monoteísta, talvez algo parecido com o que ocorreu com o rei Nabucodonosor (cf. Dn 4:34-37).
 
-Todavia, tais interpretações não podem ser sustentadas à luz das Escrituras, além de contradizerem até mesmo os dados históricos já levantados, onde a adoração a 
-Baal naquela região foi estabelecida em um período posterior ao que viveram Abraão e Melquisedeque. Quanto a isso, a Bíblia facilmente esclarece que Melquisedeque 
-era um verdadeiro adorador do único Deus, principalmente considerando as referências sobre ele nos livros de Salmos e Hebreus. Além disso, o respeitado historiador
-e estudioso da história judaica, o judeu Flávio Josefo, os pais da igreja e os reformadores, nunca duvidaram da verdadeira religião de Melquisedeque.
+Todavia, tais interpretações não podem ser sustentadas à luz das Escrituras, além de contradizerem até mesmo os dados históricos já levantados, onde a adoração a Baal naquela região foi estabelecida em um período posterior ao que viveram Abraão e Melquisedeque. Quanto a isso, a Bíblia facilmente esclarece que Melquisedeque era um verdadeiro adorador do único Deus, principalmente considerando as referências sobre ele nos livros de Salmos e Hebreus. Além disso, o respeitado historiador e estudioso da história judaica, o judeu Flávio Josefo, os pais da igreja e os reformadores, nunca duvidaram da verdadeira religião de Melquisedeque.
 
 ### No antigo testamento
 
