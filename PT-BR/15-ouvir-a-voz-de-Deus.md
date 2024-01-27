@@ -1,6 +1,6 @@
 ```
 As minhas ovelhas ouvem a minha voz
-Eu as conhece, e elas me seguem
+Eu as conheço, e elas me seguem
 João 10:27
 ```
 
