@@ -1,14 +1,16 @@
 ### Um grande privilégio
 
 ```
-"Jesus respondeu: Em verdade, em verdade te digo que aquele que não nascer da água e do Espírito não pode entrar no reino de Deus. O que é nascido da carne é carne, e o que é nascido do Espírito é espírito."
+"Jesus respondeu: Em verdade, em verdade te digo que aquele que não nascer da água e do Espírito não pode entrar
+no reino de Deus. O que é nascido da carne é carne, e o que é nascido do Espírito é espírito."
 Joao 3:5-6
 ```
 
 "O que é nascido da carne é carne." Nada que venha da natureza humana pode agradar a Deus. Mas aquilo que é "nascido do Espírito é espírito". É aqui onde o segredo do Senhor está. O Evangelho de Cristo não é apenas boas novas, mas também poder de Deus que traz salvação a todo aquele que nele crê.
 
 ```
-"Porque não me envergonho do evangelho de Cristo, pois é o poder de Deus para salvação de todo aquele que crê; primeiro do judeu, e também do grego."
+"Porque não me envergonho do evangelho de Cristo, pois é o poder de Deus para salvação de todo aquele que crê; 
+primeiro do judeu, e também do grego."
 Romanos 1:16
 ```
 
