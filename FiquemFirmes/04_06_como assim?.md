@@ -1,5 +1,11 @@
 ### Como assim?
 
+#### Texto base
+```
+"E, chegando eles a Cafarnaum, aproximaram-se de Pedro os que cobravam as dracmas, e disseram: O vosso mestre não paga as dracmas? Disse ele: Sim. E, entrando em casa, Jesus se lhe antecipou, dizendo: Que te parece, Simão? De quem cobram os reis da terra tributo ou imposto? Dos seus filhos, ou dos alheios? Disse-lhe Pedro: Dos alheios. Disse-lhe Jesus: Logo, são livres os filhos. Mas, para que os não escandalizemos, vai ao mar, lança o anzol, tira o primeiro peixe que subir, e abrindo-lhe a boca, encontrarás um estáter; toma-o, e dá-lho por mim e por ti."
+Mateus 17:24-27
+```
+
 ```
 "O que também aprendestes, e recebestes, e ouvistes, e vistes em mim, isso fazei; e o Deus de paz será convosco."
 Filipenses 4:9
