@@ -1,4 +1,4 @@
-### O Herói de Fato e de Direito
+### Brinque na dor
 
 #### Texto base
 ```

@@ -1,4 +1,4 @@
-### Brinque na dor
+### O Herói Verdadeiro
 
 #### Texto base
 ```
