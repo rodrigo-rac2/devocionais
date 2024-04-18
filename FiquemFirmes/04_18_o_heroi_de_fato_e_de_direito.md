@@ -1,4 +1,4 @@
-### O Herói Verdadeiro
+### O Verdadeiro Herói
 
 #### Texto base
 ```
