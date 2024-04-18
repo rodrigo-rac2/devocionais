@@ -1,4 +1,4 @@
-### Refletir a verdade
+### Informação Importante
 
 ```
 "Vós sois a luz do mundo. Não se pode esconder uma cidade situada sobre um monte""
