@@ -23,8 +23,9 @@ Mas nisso é conhecido o amor do Pai por nós: graças a Jesus, por sermos crent
 
 E então, poderemos ver o nosso amado face a face. Podemos conhecê-lo plenamente, integralmente, totalmente, sem as limitações da carne. O veremos como Ele já nos vê, e O conheceremos como ele já nos conhece.
 
-O Senhor sabe quem eu sou: é impossível esconder qualquer coisa dEle. Ele sabe o que quero, Ele conhece as minhas fraquezas, Ele se alegra por tudo quanto conquisto consigo, Ele chora comigo, Ele está sempre do meu lado, afinal, Ele me ama!
-E um dia O poderei conhecer plenamente.
+O Senhor sabe quem eu sou: é impossível esconder qualquer coisa dEle. Ele sabe o que quero, Ele conhece as minhas fraquezas, Ele se alegra por tudo quanto conquisto consigo, Ele chora comigo, Ele está sempre do meu lado. E mesmo diante de quem eu sou, Ele decidiu me amar e dar a vida por mim!
+
+Eu já O amo, o pouco que consigo conhecer dEle, Ele é infalível. Também, um dia, eu poderei conhecer o meu amado plenamente.
 
 1 Corintios 13 descreve o amor de Deus por nós.
 
