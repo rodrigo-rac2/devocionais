@@ -5,7 +5,7 @@ Gênesis 50:20
 ```
 No caminho para santificação, muitas vezes podemos nos achar lutando contra a incerteza. Algumas vezes o próximo passo em nossas vidas não está claro, e os desafios que enfrentamos podem nos fazer questionar se estamos nos movendo na direção correta. Talvez tenhamos avançado apenas para enfrentar novos obstáculos, ou estejamos lutando para entender como a situação atual pode nos levar para qualquer coisa boa.
 
-A jornada cristão requer uma confiança profunda no plano de Deus, mesmo quando tal plano não está claro para nós. Conseguir ter tipo de confiança não é fácil, especialmente quando enfrentamos dificuldades que nos deixam sentidos perdidos ou desconectados do propósito de Deus para as nossas vidas.
+A jornada cristã requer uma confiança profunda no plano de Deus, mesmo quando tal plano não está claro para nós. Conseguir ter tipo de confiança não é fácil, especialmente quando enfrentamos dificuldades que nos deixam sentidos perdidos ou desconectados do propósito de Deus para as nossas vidas.
 
 José foi vendido pelos seus próprios irmãos, falsamente acusado e aprisionado no Egito. Enfrentou a traição e injustiça que poderiam tê-lo deixado amargo e sem esperança. Mesmo assim, ele nunca falhou em confiar em Deus.
 
@@ -41,7 +41,7 @@ Romanos 5:3-5
 
 Cada desafio que enfrentamos em nossas vidas serve um propósito - construir perseverança, formar o nosso caráter, e ultimamente criar uma confiança inabalável. As nossas lutas não são apenas obstáculos que serão vencidos - são oportunidades para Deus demonstrar sua fidelidade e transformar as nossas vidas.
 
-Aceitar que enfrentamos aflições abre as portas da experiência das bençãos de Deus de maneiras que não esperamos.
+Aceitar que enfrentamos aflições abre as portas da experiência das bençãos de Deus de formas que não esperamos.
 
 Oração: 
 "Pai amado, a Tua sabedoria é perfeita, e os Teus caminhos são mais altos que os meus. Eu me regozijo em saber que tens o meu futuro em Tuas mãos. Obrigado por tua fidelidade em cada estação da minha vida. Aprofunda a minha confiança no Teu plano perfeito, e ajuda-me achar paz na Tua presença. Eu rendo-me a Ti, e escolho descansar no Teu amor infalível, ao invés de querer entender e escolher. Enche-me com confiança e guia-me à frente, seguindo o caminho que Tu preparaste.
