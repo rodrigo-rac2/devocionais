@@ -4,17 +4,17 @@
 Mateus 26:39
 ```
 
-Eu aceito que não posso fazer tudo sozinho e na minha própria força. Este é um entendimento poderoso - que abre a porta para descobrir a verdadeira força que existe em se render a Deus. Isso pode até parecer paradoxial, mas se render a Deus me fortalece em situações que, se eu estivesse tentando controlar tudo sozinho, eu nunca conseguiria.
+Eu aceito que não posso fazer tudo sozinho, na minha própria força. Este é um entendimento poderoso, que abre a porta para descobrir a verdadeira força que existe em se render a Deus. Isso pode até parecer paradoxal, mas se render a Deus me fortalece em desafios que, se estivesse tentando controlar toda a situação por mim mesmo, eu nunca conseguiria superar.
 
-O que significa render-se a Deus? O maior exemplo de rendição é o de Jesus Cristo no Jardim do Getsêmani. Jesus sabia exatamente o que viria adiante: traição de um amigo próximo, abandono dos Seus amigos, um julgamento vergonhoso, uma tortura brutal e uma morte agonizante na cruz. Pior ainda que isso tudo: Ele traria aos seus ombros o peso de todos os pecados da humanidade, e experimentaria pela primeira vez na eternidade uma separação de Deus Pai.
+O que significa render-se a Deus? O maior exemplo de rendição é o de Jesus Cristo no Jardim do Getsêmani. Jesus sabia exatamente o que viria adiante: a traição de um amigo próximo, o abandono dos Seus demais amigos, um julgamento fraudulento, a tortura brutal e uma morte agonizante na cruz. Mas pior do que isso tudo: Ele traria aos seus ombros o peso de todos os pecados da humanidade, e experimentaria pela primeira vez uma separação de Deus Pai.
 
-Neste momento de angústia intensa, Jesus poderia ter escolhido fugir. Ele tinha o poder de parar tudo - Ele era o Filho de Deus capaz de comandar legiões de anjos. No entanto, Ele também sabia que este era o propósito exato pelo qual Ele havia vindo à Terra. A salvação da humanidade dependia dEle. E Mateus 26:39 captura esse momento chave. 
+Neste momento de angústia intensa, Jesus poderia ter escolhido fugir. Ele tinha o poder de parar tudo - Ele era o Filho de Deus capaz de comandar legiões de anjos. No entanto, Ele também sabia que este era o propósito exato pelo qual havia vindo à Terra. A salvação da humanidade dependia dEle. E Mateus 26:39 captura esse momento chave. 
 
-Mesmo Jesus, diante de um sofrimento inimaginável, expressou-se honestamente ao pedir para Deus o seu desejo humano de evitar a dor. Mas Ele também, de maneira definitiva, rende-se ao propósito maior de Deus. 
+Mesmo Jesus, diante de um sofrimento inimaginável, expressou-se honestamente ao expôr para Deus o seu desejo humano de evitar a dor. Mas Ele também rende-se ao propósito maior de Deus de maneira definitiva. 
 
-Isso me ensina que render-se não significa suprimir desejos ou sentimentos - é sobre trazê-los honestamente a Deus na medida em que escolho confiar no plano dEle. Mesmo quando for difícil, isso leva a algo maior, que nunca conseguiríamos por nós mesmos.
+Isso me ensina que se render não significa suprimir desejos ou sentimentos - é sobre trazê-los honestamente a Deus na medida em que escolho confiar no plano dEle. Mesmo quando for difícil, isso leva a algo maior, que nunca conseguiria por mim mesmo.
 
-A mundo frequentemente nos diz que render-se significa fraqueza, e que nós precisamos manter tudo sob controle. Mas o Salmo 37:7 revela uma verdade diferente:
+O mundo frequentemente nos diz que se render significa fraqueza, e que nós precisamos manter tudo sob controle. Mas o Salmo 37:7 revela uma verdade diferente:
 
 ```
 'Descanse no Senhor e aguarde por ele com paciência; não se aborreça quando outros obtêm sucesso em seus caminhos, quando eles maquinam o mal.'
@@ -22,11 +22,11 @@ A mundo frequentemente nos diz que render-se significa fraqueza, e que nós prec
 Salmos 37:7
 ```
 
-Esse salmo nos ensina que a força verdadeira vem de aprender a manter-se firme e paciente no Senhor. Na nossa caminhada cristã, em muitos momentos podemos nos sentir pressionados para apressar o processo, ou ansiosos quando outros parecem estar se movendo mais rapidamente em suas jornadas. Render-se significa livrar-se destas comparações e confiar no tempo de Deus para tudo.
+Esse salmo nos ensina que a força verdadeira vem de aprender a manter-se firme e paciente no Senhor. Na nossa caminhada cristã, em muitos momentos podemos sentir-nos pressionados para apressar o processo, ou ansiosos quando outros parecem estar se movendo mais rapidamente em suas jornadas. Render-se significa livrar-se destas comparações e confiar no tempo de Deus para tudo.
 
-Quando eu sentir o impulso de confiar em padrões antigos ou de tentar controlar o meu chamado por meio da minha força de vontade, lembrarei que a compreensão de Deus supera a minha própria. Ele vê toda a minha vida e conhece o caminho que devo seguir.
+Quando eu sentir o impulso de confiar em padrões antigos ou de tentar controlar o meu chamado por meio da minha força de vontade, lembrarei que a compreensão de Deus supera a minha própria. Afinal, Ele já viu toda a minha vida e conhece o caminho que devo seguir.
 
-Este tipo de rendição não uma decisão que acontece apenas uma vez - é uma escolha diária de oferecer a minha vida a Deus. Romanos 12:1 descreve este compromisso contínuo:
+Este tipo de rendição não uma decisão que acontece apenas uma vez - é uma escolha diária de oferecer a vida a Deus. Romanos 12:1 descreve este compromisso contínuo:
 
 ```
 'Portanto, irmãos, peço, pelas misericórdias de Deus, que ofereçam o corpo de vocês como sacrifício vivo, santo e agradável a Deus: este é o culto racional de vocês. '
@@ -34,13 +34,12 @@ Este tipo de rendição não uma decisão que acontece apenas uma vez - é uma e
 Romanos 12:1
 ```
 
-Render-se é um ato de adoração, uma forma de demonstrar amor por Deus. Cada vez que escolhermos confiar na Sua orientação ao invés dos nossos impulsos pessoais, estamos expressando amor por Ele. Cada momento que resistimos os impulsos por controle e descansamos no cuidado dEle, estamos crescendo e nos fortalecendo em nossa fé.
+Render-se é um ato de adoração, uma forma de demonstrar amor por Deus. Cada vez que escolhermos confiar na Sua orientação ao invés dos nossos impulsos pessoais, estamos expressando amor por Ele. Cada vez quando resistimos os impulsos por controle e descansamos no cuidado dEle, estamos crescendo e nos fortalecendo em nossa fé.
 
-Quando nos rendemos verdadeiramente a Deus, descobrimos uma verdade paradoxal: desistir do controle na verdade nos dá acesso a uma força maior, que nunca teria por mim mesmo. Não precisamos mais carregar o fardo de ter que resolver tudo, ou de forçar soluções. De contrário, podemos caminhar na força que vem de confiar no trabalho de Deus nas nossas vidas.
+Quando verdadeiramente nos rendemos a Deus, descobrimos uma verdade paradoxal: desistir do controle na verdade dá acesso a uma força maior, que nunca teríamos por nós mesmo. Não precisamos mais carregar o fardo de ter que resolver tudo, ou de forçar soluções. Do contrário, podemos caminhar na força que vem da confiança no trabalho de Deus nas nossas vidas.
 
-Isso não significa que a caminhada vai ser fácil, ou que desafios não virão. Mas significa sim que não estaremos sozinhos para encarar tais desafios, nas nossas próprias forças. Ao render-nos a Deus, abrimo-nos para o poder dEle trabalhar através de mim, transformando a minha fraqueza em força.
-
+Isso não significa que a caminhada vai ser fácil, ou que desafios cessarão. Significa sim que não estaremos sozinhos, contando com nossas próprias forças, para encarar tais desafios. Ao render-nos a Deus, abrimo-nos para o poder dEle trabalhar através de nós, transformando a nossa fraqueza em força.
 
 Oração: 
-"Pai amado, a Tua força sua aperfeiçoa na minha fraqueza, e o Teu poder é iliminado. Eu me alegro que Tu és poderoso para salvar e eternamente fiel para me sustentar. Obrigado pela Teu gracioso convite, que eu possa descansar na Tua força. Eu rendo a minha busca por sucesso e controle, e escolho depender completamente em Ti. Enche-me com o Teu poder e paz na medida em que eu descanso na Tua graça que não falha.
+"Pai amado, a Tua força sua aperfeiçoa na minha fraqueza, e o Teu poder é ilimitado. Alegro-me que Tu és poderoso para salvar e eternamente fiel para sustentar. Obrigado pelo Teu gracioso convite de descansar na Tua força. Eu rendo a minha busca por sucesso e controle, e escolho depender completamente de Ti. Enche-me com o Teu poder e paz na medida em que eu descanso na Tua graça que não falha.
 Em nome de Jesus!"
