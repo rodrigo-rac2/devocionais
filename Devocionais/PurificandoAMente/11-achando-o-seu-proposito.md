@@ -6,7 +6,7 @@ Efésios 2:10
 
 Observe o quanto já caminhamos!
 
-Após aceitar Jesus como Senhor e Salvador, temos construído uma fundamento sólido para a nossa jornada adiante. Já desenvolvemos ferramentas para encarar desafios com fé, praticamos a aceitação da graça de Deus em momentos difíceis, e descobrimos força na submissão à vontade de Deus. Já temos construído hábitos saudáveis, e achado satisfação mesmo em pequenas vitórias. Mais importante, temos fortalecido a nossa confiança na direção de Deus.
+Após aceitarmos Jesus como Senhor e Salvador, temos construído uma fundamento sólido para a nossa jornada adiante. Já desenvolvemos ferramentas para encarar desafios com fé, praticamos a aceitação da graça de Deus em momentos difíceis, e descobrimos força na submissão à vontade de Deus. Já temos construído hábitos saudáveis, e achado satisfação mesmo em pequenas vitórias. Mais importante, temos fortalecido a nossa confiança na direção de Deus.
 
 Vamos ver hoje como tudo isso se junta para nos ajudar a descobrir e abraçar o nosso maior propósito.
 
