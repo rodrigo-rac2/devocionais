@@ -66,8 +66,6 @@ Essa é a resposta ao clamor de Jó.
 Essa é a razão pela qual você existe.
 E essa é uma verdade que nenhuma tempestade pode levar embora.
 
-Você pode ter se perguntado: “Eu sou digno do amor de Deus?” E você não está sozinho nisso. Não perca o Dia 4 do nosso plano Graça vs. Obras e descubra a verdade sobre a graça de Deus.
-`
 ---
 
 Oração: 
