@@ -1,3 +1,5 @@
+# Antes do Começo: Deus
+
 Imagine-se caminhando por uma floresta tranquila ao entardecer. O caminho é silencioso e familiar. Mas quando você se vira para voltar para casa, percebe que a trilha desapareceu. As árvores parecem mais altas. O caminho à frente não está claro, e não há sinal. Você para. Por um momento, sente-se perdido e inseguro. Para onde eu vou a partir daqui?
 
 Assim também é a confusão espiritual. É como estar perdido em uma floresta.
