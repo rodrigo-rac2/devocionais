@@ -42,7 +42,7 @@ Não se trata de quão "bons" somos ou de quão perfeitamente nos comportamos. T
 
 ### Agape: A Forma de Deus Amar
 
-Uma das mais profundas expressões da natureza de Deus no Novo Testamento é encontrada na palavra ἀγάπη (agape)—um amor divino, auto-doado, que é incondicional, sacrificial e redentor. Diferente do amor humano, que muitas vezes depende de benefício mútuo ou conexão emocional, agape se origina inteiramente do caráter de Deus. É o amor que age primeiro, dá livremente e sustenta sem condições. Este é o amor revelado em Jesus Cristo—que amou não porque éramos dignos, mas porque Ele é amor. Agape é a base do evangelho: Deus amando pecadores, buscando os perdidos e oferecendo graça aos indesejados. É um amor que transforma, não exigindo dignidade, mas concedendo-a.
+Uma das mais profundas expressões da natureza de Deus no Novo Testamento é encontrada na palavra ἀγάπη (agape)—um amor divino, auto-doado, que é incondicional, sacrificial e redentor. Diferente do amor humano, que muitas vezes depende de benefício mútuo ou conexão emocional, agape se origina inteiramente do caráter de Deus. É o amor que age primeiro, dá livremente e sustenta sem condições. Este é o amor revelado em Jesus Cristo—que amou não porque éramos dignos, mas porque Ele é amor. Agape é a base do evangelho: Deus amando pecadores, buscando os perdidos e oferecendo graça aos indesejados. É um amor que transforma, não exigindo merecimento, mas concedendo-o.
 
 ```
 "Mas Deus demonstra seu amor por nós: Cristo morreu por nós quando ainda éramos pecadores."
